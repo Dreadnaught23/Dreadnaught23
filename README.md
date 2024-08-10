@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Fiverr
 - 📫 How to reach me : Email:abidrgt17@gmail.com
 
-@StmikAmikRiau <br>
+@ustiofficial <br>
 Student
 
 <!---
